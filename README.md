@@ -21,3 +21,5 @@ Bright Caves
 DTB Fix
 
 https://imgur.com/a/Kuf8Ejw
+
+https://discord.gg/wv9WQYHb
