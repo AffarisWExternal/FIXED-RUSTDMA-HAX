@@ -23,3 +23,6 @@ DTB Fix
 https://imgur.com/a/Kuf8Ejw
 
 https://discord.gg/wv9WQYHb
+
+
+FOR PREMIUM PACK OF THIS SOFTWARE DM ME ASAP ON DISCORD PAYMENT LTC !!!
